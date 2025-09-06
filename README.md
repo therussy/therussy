@@ -22,19 +22,21 @@
    - ☞ "Asia" (in the south-east to be specific!) 🏠
 - 🏳️ My nationality?
    - ☞ "Filipino" (if you have never heard of it, you have an iq of a sloth) 🇵🇭
-   - ☞ "...Of Japanese descent" (my ancestral line consists of japanese people!) ⛩
 - 💬 My language/s?
    - ☞ "English" (i am actually kinda fluent in it!) 🇺🇸
+   - ☞ "Cebuano" (unfortunately, i can't understand deep words) 😸
    - ☞ "Tagalog" (i am illiterate to my own native language...) 👤
 - 🛐 My religion?
    - ☞ "Christian" (under the Roman Catholic denomination!) ✝️
-- 👍🏼 My interests?
-   - ☞ "Books" (fiction and romance to be specific. i read young adult romance and fanfics sometimes...) 📖
-   - ☞ "Pop music" (NOW THIS IS MY JAM!) 🎤
-   - ☞ "Ado" (like the japanese singer... HER MUSIC IS SO BOP! AND HER DEEP VOICE?? UGH.) 🎸
-   - ☞ "Coding" (i have experiences in coding submods!) ⌨️
-   - ☞ "Travelling" (i have been to lots of countries!) 🛫
-   - ☞ "Console Games" (GTA V, P5R, BOTW/TOTK, Animal Crossing, FE, Super Mario, etc.) 🎮
+- 👍🏼 My likes/interests?
+   - ☞ "Music" (i love any music that appeals to me, so my favorite genre is not really fixed!) 🎤
+   - ☞ "Foxes" (they're my favorite animal, mostly because of their smart and playful personality and cute appearance) 🦊
+   - ☞ "Pastries" (i have a very sweet tooth, so i can't really live without it) 🧇
+   - ☞ "Games" (i mostly play a lot of console games and don't really play fps because i'm very bad at it...) 🎮
+   - ☞ "Motorcycles" (sports bikes appeal to me more, but i turn my head whenever i hear any motorcycle that passes by!) 🏍
+   - ☞ "MotoGP" (pretty self-explanatory if motorcycles are one of my likes and wishes...) 🏁
+   - ☞ "Formula 1" (expected as well because i watch MotoGP!) 🏎
+   - ☞ "Lego" (i like building...) 🔝
 - 👎🏼 My pet peeves?
    - ☞ "Ill-mannered people" (i can't think of anything besides that pls help) 🎭
 - 💛 Thank you for reading!!
