@@ -1,4 +1,4 @@
-- 💛 Hi! Hello! Good morning! / afternoon! / evening!
+- 💜 Hi! Hello! Good morning! / afternoon! / evening!
 - 📃 You may call me...:
    - ☞ "therussy.lilz" (sure...?) 😭
    - ☞ "therussy" (i am kinda fine with it, it just sounds weird) ⚰️
@@ -39,4 +39,4 @@
    - ☞ "Lego" (i like building...) 🔝
 - 👎🏼 My pet peeves?
    - ☞ "Ill-mannered people" (i can't think of anything besides that pls help) 🎭
-- 💛 Thank you for reading!!
+- 💜 Thank you for reading!!
